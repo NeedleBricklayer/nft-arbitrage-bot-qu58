@@ -1,4 +1,4 @@
-# 
+# vip nft arbitrage bot | volume-analysis + wash-trading-detection offers the most advanced nft arbitrage bot, with volume-analysis and wash-trading-detection. Ideal for
 
 
 
